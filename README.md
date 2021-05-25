@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BurntBac0n
+- 👀 I’m interested in coding n stuff
+- 🌱 I’m currently learning to code
+- 💞️ I’m looking to collaborate on yo mama
+- 📫 How to reach me discord - BurntBac0n#0557
